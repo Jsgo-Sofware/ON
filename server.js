@@ -1,1 +1,1 @@
-No Content For Mobile :
+Am websita karnakat
